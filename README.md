@@ -1,1 +1,1 @@
-# my-first-app
+「Xiaomi Pad 6からの初投稿！」
